@@ -10,4 +10,4 @@
 
 这些平台专注于人妻人人澡人人爽人人精品资源，内容覆盖日韩、国产及欧美类型，分类明确、每日更新。每个视频页面提供完整影片介绍，包括时长、清晰度和主要演员，支持高清流畅播放，并能根据网络环境智能切换画质。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu3 ）</span>
